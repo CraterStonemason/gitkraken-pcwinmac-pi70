@@ -1,4 +1,4 @@
-# 
+# Exclusivo GitKraken plugins para Mac OS | Gratuito GitKraken plugins para PC Windows. Con diagramas de base de datos y deshacer con un clic — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
